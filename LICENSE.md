@@ -1,4 +1,4 @@
-#  
+#  Experience survive lava for brainrots like never before with advanced survive lava for brainrots Script, the #1 Script. Includes god mode and
 
 
 
